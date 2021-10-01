@@ -17,3 +17,5 @@
 
 
 ![alt text](https://i.ibb.co/rv9PN8D/j-j-Ekran-Al-nt-s.png)
+
+![alt text](https://i.ibb.co/bHVn6z4/fwe-Ekran-Al-nt-s.png)
